@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @7sacksofrice
-- 👀 I’m interested in girls with big tiddies
+- 👀 I’m interested in football and pool
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on Flutter and Dart
 - 📫 How to reach me sinhhungnguyen8@gmail.com
